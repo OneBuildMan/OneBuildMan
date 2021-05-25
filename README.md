@@ -1,1 +1,1 @@
-I pretend to know what I'm doing 
+I pretend I know what I'm doing 
